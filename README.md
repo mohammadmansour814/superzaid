@@ -1,0 +1,2 @@
+This link open super zaid apk
+https://apkpure.com/super-zaid-1/com.Launchpad.SuperZaid1
